@@ -4,7 +4,7 @@ I'm Adrián Pérez, currently working as a Frontend Engineer, creating mapping-f
 
 --------------
 
-My other side: **I'm an electronic music producer** 🎹
+My other side: **I'm electronic music producer** 🎹
 
 I really enjoy everything related to synthesizers and drum machines. I like dark electronics 🖤 (EBM, dark wave) the most, but also techno
 
